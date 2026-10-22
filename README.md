@@ -1,2 +1,1 @@
-# Privacy-policy
-Privacy policy for discord app
+no policy’s lol
